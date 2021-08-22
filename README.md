@@ -1,0 +1,5 @@
+- 👋 Hi, I’m fkf AKA "red panda"
+- 👀 I’m interested in being better than you in programming
+- 🌱 I’m currently learning "stuff"
+- 💞️ I’m looking to collaborate on NOTHING
+- 📫 How to reach me: discord ==> FKꟻ Studios#3586
